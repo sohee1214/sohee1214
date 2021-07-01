@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi i'm sohee 👋
 
 <!--
 **sohee1214/sohee1214** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
